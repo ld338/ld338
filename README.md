@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently working on **something :D**
 
-- 🌱 I’m currently learning **how to get a girlfried**
+- 🌱 I’m currently learning **how to get a girlfried** (finished and successfully got one)
 
 - 📫 How to reach me **me@ld338.de**
 
